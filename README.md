@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ironrav3ns
+- 👀 I’m interested in learning how to code, i just started :)
+- 🌱 I’m currently learning Python. 
+- 📫 How to reach me ironrav3ns on discord.
+- ⚡ Fun fact: I love gaming kinda addicted to it.
